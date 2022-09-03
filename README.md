@@ -1,1 +1,0 @@
-# kitasawa.github.io
